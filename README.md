@@ -1,10 +1,9 @@
-# Protogen
-I am a prtototogenn
+# Derg
+I am a dergeregerg
 i make funnies
-go there!! !! !! --> https://zuri.network
-#### PROTOCRAFT NETWORK
-join my mc server pls
-https://zuri.network/protocraft
+go there!! !! !! --> https://sillycc.org
+#### balls smp
+Dont join this: balls.mc.sillycc.org
 #### i made a thing
 i think
 
